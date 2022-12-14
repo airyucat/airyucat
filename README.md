@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Agni (ಅಗ್ನಿ), and online, I go by Airyu (愛竜) or Airyucat!
+- 👀 I’m interested in art, video games, writing, biology, wildlife, fashion...
+- 🌱 I’m currently learning to code
+- 📫 You can reach me at agninano@gmail.com
